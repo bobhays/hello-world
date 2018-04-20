@@ -1,2 +1,2 @@
 # hello-world
-following the GitHub hello-world activity
+grilled balony and cheese sandwiches are good. 
